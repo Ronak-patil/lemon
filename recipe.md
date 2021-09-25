@@ -1,0 +1,1 @@
+first we can take bowl and take lemon than we crust the lemon and we mix into water than we mix into sugar and salt and mix them than your lemon juse is ready
